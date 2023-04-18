@@ -1,3 +1,3 @@
-Brayan Alonso Lizarraga 20031111
+Brayan Alonso Lizarraga 
 quiero 10 porfavor
 bidkar aragon kardenas
